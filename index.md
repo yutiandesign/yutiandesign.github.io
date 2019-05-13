@@ -61,7 +61,7 @@
 
 #### 服装
 - THE HERON  _A wild bat-winged wrap top with a shawl collar and side tie._
-- THE STRIDES  _Wide-leg straight trouser influenced by classic menswear and featuring a waistband,pleated front,fly zip and side pockets.VSRIATION:a pair pf neat shorts.
+- THE STRIDES  _Wide-leg straight trouser influenced by classic menswear and featuring a waistband,pleated front,fly zip and side pockets.VSRIATION:a pair pf neat shorts._
 - THE CLOTH-01
 - THE CLOTH-02
 
